@@ -25,5 +25,11 @@ I've got a lot of interests, particularly other Roblox games;
  ✧ Twenty-One (NR) & more ...
 
 Outside of Roblox, some medias I enjoy are;
- Dead Space, Death Stranding, Inscryption, Limbus Company, Lobotomy Corporation 
- Prey (2017) & the Mooncrash DLC, Stray and Ultrakill
+ ✧ Dead Space
+ ✧ Death Stranding 
+ ✧ Inscryption
+ ✧ Limbus Company
+ ✧ Lobotomy Corporation 
+ ✧ Prey (2017) & the Mooncrash DLC
+ ✧ Stray
+ ✧ Ultrakill
