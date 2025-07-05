@@ -14,7 +14,7 @@ If you need me to respond/want a guaranteed response,
 send me a whisper and I'll get back to you ASAP!
 
 Usually I'm quietly observing unless otherwise stated
-on my pony/observed via sleeping.
+in my name/observed via sleeping.
 
 //
 
