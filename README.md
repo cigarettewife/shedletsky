@@ -23,6 +23,9 @@ Always IWC/IWEC please !! Tonetags appreciated but not required
 God nerfed me with social anxiety or I'd be too powerful cuz of 
 this I typically avoid interacting/reaching out first
 
+I usually stream music via Spotify during my stays, if anyone
+would like to join, I do keep a link in the "status" bar on GH
+
 //
 
 I've got a lot of interests, particularly other Roblox games;
