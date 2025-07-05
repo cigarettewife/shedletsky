@@ -1,4 +1,8 @@
-Ajax / Atlas / Clover / Shedletsky
+(View in "CODE" for your convenience)
+
+//
+
+Ajax / Clover / Shedletsky
 ✧ 21 < They/Them|He > Non-binary ✧
 
 //
@@ -7,7 +11,7 @@ DNI <18, thank you ...
 Ask before C+H, touching OKAY ^_^
 
 If you need me to respond/want a guaranteed response,
-send me a whisper and I'll get back ASAP!
+send me a whisper and I'll get back to you ASAP!
 
 Usually I'm quietly observing unless otherwise stated
 on my pony/observed via sleeping.
