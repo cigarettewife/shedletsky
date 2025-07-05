@@ -11,15 +11,16 @@ DNI <18, thank you ...
 Ask before C+H, touching OKAY ^_^
 
 If you need me to respond/want a guaranteed response,
-send me a whisper and I'll get back to you ASAP!
+send me a whisper and I'll get back to you ASAP!!!
 
 Usually I'm quietly observing unless otherwise stated
-in my name/observed via sleeping.
+in my name/observed via sleeping 
 
 //
 
 Always IWC/IWEC please
 God nerfed me with social anxiety or I'd be too powerful
+cuz of this I typically avoid interacting/reaching out first
 
 I've got a lot of interests, particularly other Roblox games;
  ✧ Block Tales
