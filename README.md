@@ -18,9 +18,12 @@ in my name/observed via sleeping
 
 //
 
-Always IWC/IWEC please
-God nerfed me with social anxiety or I'd be too powerful
-cuz of this I typically avoid interacting/reaching out first
+Always IWC/IWEC please !! Tonetags appreciated but not required
+
+God nerfed me with social anxiety or I'd be too powerful cuz of 
+this I typically avoid interacting/reaching out first
+
+//
 
 I've got a lot of interests, particularly other Roblox games;
  ✧ Block Tales
